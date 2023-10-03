@@ -7,7 +7,11 @@ This is a brief summary of my background and experiences.
 I have worked with a tree service company and i do my own lawn care buisness 
 
 ### Education
-completed 3 years of high school
+boonville highschool for 3 years
+
+southren indiana career and technical center 
+computer science 
+computer networking
 
 ### Volunteer Work
 i voulnteeer at more than pink walk 
