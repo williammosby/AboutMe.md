@@ -17,7 +17,7 @@ computer networking
 i voulnteeer at more than pink walk 
 ### Person of Influence
 ![image](https://github.com/williammosby/AboutMe.md/assets/146846202/76919097-7af4-4943-bc96-2ae4d58729ec)
-
+> "Success is not final, failure is not fatal: It is the courage to continue that counts." - Winston S. Churchill
 
 
 ### Favorite Websites
